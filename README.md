@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @bhenbao
 - 👀 I’m interested in ... you <3
-- 🌱 I’m currently learning ... about you're interests xoxo
+- 🌱 I’m currently learning ... about your interests xoxo
 - 💞️ I’m looking to collaborate on ... our future uwu
 - 📫 How to reach me ... 
 
